@@ -19,6 +19,7 @@
 ## Let's Connect
 
 I'm always excited to meet data enthusiasts. Feel free to reach out to me on www.linkedin.com/in/abosede-igharo-a-a64271158 
+
 Let's connect and share our experiences!
 
 Thanks for stopping by my GitHub profile. 
